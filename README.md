@@ -9,8 +9,8 @@ GET LEAKED IDIOT
   
 
 
-# JOIN USB!
+## JOIN USB!
 
-## https://discord.gg/wtXZyURG6e
+### https://discord.gg/wtXZyURG6e
 
-# leak made by funny people :)
+### leak made by funny people :)
