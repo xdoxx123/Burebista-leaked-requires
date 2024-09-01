@@ -4,10 +4,9 @@ GET LEAKED IDIOT
 
 ### all of the requires are in the Requires.txt file :)
 
-
-
-
-
+ 
+    
+  
 
 
 # JOIN USB!
