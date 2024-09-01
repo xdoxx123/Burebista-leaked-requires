@@ -14,3 +14,6 @@ GET LEAKED IDIOT
 ### https://discord.gg/wtXZyURG6e
 
 ### leak made by funny people :)
+
+
+fuck that pedo
